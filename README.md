@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @yusufykl
 - 👀 I’m interested in python 
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on no one
+- 💞️ I’m looking to collaborate on my pc <3
 - 📫 How to reach me ----> Email: yusuf1366y@gmail.com
 
 <!---
